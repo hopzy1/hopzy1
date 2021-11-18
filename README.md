@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hopzy
+- 👋 Hi, I’m hopzy
 - 👀 I’m interested in bug using :)~
 - 🌱 I’m currently learning at schol
 - 💞️ I’m looking to collaborate on tankionline.com

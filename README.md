@@ -1,6 +1,6 @@
 - 👋 Hi, I’m hopzy
 - 👀 I’m interested in bug using :)~
-- 🌱 I’m currently learning at schol
+- 🌱 I’m currently learning at school
 - 💞️ I’m looking to collaborate on tankionline.com
 - 📫 How to reach me - who needs it, he knows :)
 
